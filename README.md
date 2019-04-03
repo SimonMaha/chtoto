@@ -1,0 +1,3 @@
+# chtoto
+moyo
+rot trahav
